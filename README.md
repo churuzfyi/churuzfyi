@@ -1,6 +1,6 @@
 *Confused and distracted*
 
-### Student CE with a lot of obsessions👋
+### Student Computer Engineer with a lot of obsessions👋
 
 [LINKS](https://link.ruz.fyi) | Computers are really interesting. Good thing I like them.
 
